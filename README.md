@@ -11,73 +11,96 @@
 
 # 百度网盘超级会员
 
-     请大家遵纪守法，低调使用！多多支持百度，pandownload就是典型，不要以身试法！
-     手机登陆的小伙伴记得把同步关了
+     请大家遵纪守法，低调使用！多多支持百度!!!
+     手机登陆的小伙伴记得把同步关了！注意保护好自己的隐私！
      请选择微博账号登陆
      之前的账号也有能用的，不会马上就失效的，可以多试几个账号
-     4.23
-     账号：15573636645    密码：uiu2225076
-     账号：16532966488    密码：mianfeivip.comgs
-     账号：16511354403    密码：zzzz3333
-     账号：15207473580    密码：nntxid338
-     账号：13289225624    密码：23er45
-     账号：16532964077    密码：mianfeivip.com5r
-     账号：16534101273    密码：mianfeivip.comfg
-     账号：16532966488    密码：mianfeivip.comgs
-     账号：16534101347    密码：mianfeivip.comys
-     账号：16534101180    密码：mianfeivip.comad
-     账号：18212936292    密码：vvy52938
-     账号：16534101273    密码：mianfeivip.comfg
-     账号：16532964033    密码：mianfeivip.com66
+     5.1
+     账号：16532967600 密码：mianfeivip.com45
+     账号：16532964633 密码：mianfeivip.comgd
+     账号：4tygh27p@touzi580.com 密码：7glgewcbet
+     账号：mianfeivip.comsj 密码：mianfeivip.comsj
+     账号：13875435810 密码：ouhihx872
+     账号：17841011887 密码：mih56666
+     账号：13144650942 密码：uuuu3333
+     账号：15211856732 密码：ilpdgd885
+     账号：15214499826 密码：ebt56916
+     账号：13574861440 密码：dydeym444
+     账号：hggpbtdl@touzi580.com 密码：8q11g7tdkg 
+     账号：hggpbtdl@touzi580.com 密码：8q11g7tdkg
+     账号：14527380938     密码：gk85185572 
+     账号：16534101253     密码：mianfeivip.com43
+     账号：13808433920     密码：axtwzz947 
+     账号：18807318265     密码：gydxqu622   
+     账号：13875435810     密码：ouhihx872    
+     账号：17057945174     密码：435792lg
      
-     4.22
-     账号：16532966566 密码：mianfeivip.com24
-     账号：16534101261 密码：mianfeivip.comg5
-     账号：trhj701g@touzi580.com    密码：4mywlo8vxm
-     账号：15207473580   密码：nntxid338
-     账号：13289225624 密码：23er45
-     账号：16534101273    密码：mianfeivip.comfg
-     账号：15727489263    密码：wxziio514
-     账号：ne01kwzo@touzi580.com    密码：0df8jnfz8x
-     账号：16534101261   密码：mianfeivip.comg5
-     账号：16532964700    密码：mianfeivip.comed
-     账号：17088313622    密码 ：520dujia88
-     账号：18768639774    密码：fvu05165
-     账号：18885288078   密码：pqd78108
-     账号：17088315488   密码：520dujia88
-     账号：17088315487   密码：520dujia88
+     4.30
+     账号：13289225624密码：23er45
+     账号：16534101270 密码：mianfeivip.comab
+     账号：16532967600 密码：mianfeivip.com45
+     账号：mianfeivip.comsj 密码：mianfeivip.comsj
+     账号：17057945174 密码：435792lg
+     账号：13574861440 密码：dydeym444
+     账号：16532964655 密码：mianfeivip.comad
+     账号：16532966520 密码：mianfeivip.comds
+     账号：16532967233 密码：mianfeivip.com85
+     账号：13417087050 密码：aaf57159
+     账号：0014386480034 密码：qxb373257
+     账号：17300797397 密码：xiaoxkt520
+     
+     4.29
+     账号：16534101269 密码：mianfeivip.comdf
+     账号：16532967233 密码：mianfeivip.com85
+     账号：16534101270 密码：mianfeivip.comab
+     账号：16532967600 密码：mianfeivip.com45
+     账号：16534101272 密码：mianfeivip.comsj
+     账号：16532967633 密码：mianfeivip.coms9
+     账号：16534101336 密码：mianfeivip.comfa
+     账号：16532967255 密码：mianfeivip.comj9
+     账号：17060214058    密码：a123456
+     账号：18206694136    密码：wva83027
+     账号：16532966577    密码：mianfeivip.comds
+     账号：13728909584    密码：vbb41502
+     账号：17057945174    密码：435792lg
+     账号：15773453928    密码：qoghop072
+     账号：15920806937    密码：pjq99245
+     账号：13163528406    密码：uuuu3333
 
 # 迅雷
       推荐使用迅雷X登录（一般失效快）
       如果登录显示频繁，点击游戏后登录。
-      4.22
-      账号：mzr082oiw密码：jnp0mr
-      账号：am@gru.win密码：jnp0mr
-      账号：615564377密码：89u832
-      账号：fanzhong046密码：54558660
+      5.1
+      账号ubwtkzsky密码x684121
+      账号bdftwzhfn密码mtuevwku
+      账号dchbchgxe密码rtgpfpvh
+      账号vpmiqyzsl密码zihmtyai
       
-      4.21
-      账号：znkygeort密码：ebcfdauf
-      账号：bgbvwenre密码：qdpigpbn
-      账号：wspp18密码：363508
-      账号：wsqslxm密码：198759
-      账号：ztpbsxdgc密码：f426646
-      账号：shixian9999密码：shixiang
-      账号：shixiaolan25密码：sxl19830524
-
+      4.27
+      账号：cvhpihdfd密码：tczbvqbf
+      账号：bcfzxuoyz密码：xtauisoc
+      
+      4.26
+      账号：chibeng343密码：54558660
+      账号：youzong913密码：54558660
+      
 # 优酷
       免费账号因为使用人数较多，容易被限制导致无法登录.
-      4.18
-      选择账号密码登录y1ye2r@163.com密码yy58305
-      选择账号密码登录hn02sv@163.com密码yy73524
+      4.29
+      选择账号密码登录xksy167383@163.com密码km44441
+      选择账号密码登录xktm422570@163.com密码km44441
       
-      4.16
-      选微博登录hhcogp865575@game.weibo.com密码fvuy29498
-      选微博登录kqcbdt761595@game.weibo.com密码eyvl08833
-      选微博登录qwsapl480120@game.weibo.com密码lfpv50792
+      4.26 更新
+      选择账号密码登录tcew703668@163.com密码kk3327
+      选择账号密码登录tcjo017691@163.com密码kk3327
+
 
 # 腾讯视频
-      账号：1703448680  密码：wuaipojie123  （QQ登陆）
+      电脑请使用客户端登录，不要网页版。
+      手机登录方式：打开腾讯视频-- 选择qq登录--然后添加QQ
+      
+      4.26 更新
+      账号：1911192061密码：bbs.vip60.cn354
 
 # 虾米
       账号：13035523102  密码：286467426a
